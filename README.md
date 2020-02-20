@@ -1,0 +1,2 @@
+# com
+ Latest World News in Urdu دنیا کی تمام خبریں - Read World local, World Sports, Politics, Education  and important news about World in Urdu. News Photos, Images &amp; videos about World, on  ijsnews.com fOR Online News. LIKE FOLLOW AND SUBSCROBE OUR SOCIALMEDIA: FOR MORE UPDATES  Follow us on Twitter: https://bit.ly/37FAAOZ  Like us on Facebook: http://bit.ly/2HBPBqF  Follow us on Instagram: http://bit.ly/2HDUWNU  Visit Our Website: http://bit.ly/37DZrmk  SUBSCRIBE OUR CHANNAL: http://bit.ly/38KEEPo   http://ijsnews.com/  YT VIDEO LINK http://bit.ly/2SHIrqY
